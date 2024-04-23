@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mohanvpersonal@gmail.com**
 
-- ⚡ Fun fact **I relax myself by work**
+- ⚡ Fun fact **I chill out by getting to work**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
